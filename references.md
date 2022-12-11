@@ -1,0 +1,12 @@
+
+- [Dr Erik Baigar's site](http://www.programmer-electronic-control.de/index.html#BIGBROTHER)
+- [Dr Erik Baigar's Video](https://www.youtube.com/watch?v=v-gF5g0nnoE)
+- [Facts Card](http://www.programmer-electronic-control.de/Elliott920FactsCard.pdf)
+- [Terry Froggatt's CCS Report #90](https://www.computerconservationsociety.org/resurrection/res90.htm)
+- [Andrew Herbert's 900-series Archive Sites](https://andrewjherbert.github.io/Elliott-900-archive-web-site/) 
+- [Andrew Herbert's 900-series Documentation](https://andrewjherbert.github.io/Elliott-900-documentation/)
+- [Terry Froggatt's Site](http://www.tjfroggatt.plus.com)
+- [Image in situ](https://jaguarxx764.files.wordpress.com/2021/04/img_2411.jpg?w=2048)
+- [Bay empty](https://jaguarxx764.files.wordpress.com/2021/04/img_8341-2.jpg?strip=info&w=1500)
+- [Rochester Aviation NAVWAAS Brochure](https://cdn.rochesteravionicarchives.co.uk/img/catalog/ZZ_1371481985_DDBR0086+%28O%26A-1b%29.pdf)
+- [Video: Selected Originals - Kosygin At 10 Downing Street (1967)](https://youtu.be/e85lEWvltCU)
